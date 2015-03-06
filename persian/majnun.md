@@ -1,0 +1,1 @@
+Bodoh, bodoh pishe layli! 
